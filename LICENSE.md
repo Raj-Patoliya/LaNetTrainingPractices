@@ -1,3 +1,0 @@
-# License
-
-## Hakuna Matata
